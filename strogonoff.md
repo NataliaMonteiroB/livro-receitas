@@ -1,5 +1,5 @@
  
- # Strogonnof de frango 
+ # Strogonnof de frango 🐔
  
 ### **Ingredientes**
 
